@@ -1,0 +1,2 @@
+# -Vuqar-ARMY-BOT
+DİSOCRD BOT
